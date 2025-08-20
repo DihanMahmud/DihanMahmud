@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **front-end development.**
 
-- 📫 How to reach me **dihanmahmud@outlook.com**
+- 📫 How to reach me **work.dihan@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
